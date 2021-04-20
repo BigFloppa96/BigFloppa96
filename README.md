@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BigFloppa96
+- 👀 I’m interested in circumvention of obligations
+- 🌱 I’m currently learning html and css 
+- 📫 How to reach me if you like caracal you write to me on discord, Big Floppa aka czołgista 🔫#7017
